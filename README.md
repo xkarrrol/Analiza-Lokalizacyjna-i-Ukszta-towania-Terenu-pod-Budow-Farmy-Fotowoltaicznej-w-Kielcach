@@ -1,0 +1,1 @@
+# Analiza-Lokalizacyjna-i-Ukszta-towania-Terenu-pod-Budow-Farmy-Fotowoltaicznej-w-Kielcach
